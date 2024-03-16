@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Apand0
-- 👀 I’m interested in VideoGame Dev.
+- 👀 I’m interested in VideoGame Developement 
 - 🌱 I’m currently studying @ UNIBA,Bari
 - 😄 Pronouns: he/him
 
